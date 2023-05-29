@@ -3,4 +3,4 @@
 ## Disclaimer:
 
 	> That's not my ownership;
-  	> Collected for easy reach purpose.
+  	> Collected for easy reach purposes.
