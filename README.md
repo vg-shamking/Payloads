@@ -2,5 +2,5 @@
 
 ## Disclaimer:
 
-	> That's not my ownership;
+	> Not pretending for an ownership;
   	> Collected only for easy reach purposes.
