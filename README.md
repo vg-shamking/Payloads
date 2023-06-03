@@ -1,4 +1,4 @@
-# Welcome to Payloads collection
+# That's Payloads collection
 
 ## Disclaimer:
 
